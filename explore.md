@@ -117,6 +117,20 @@ Smithsonian Museum
 
 
 
+Western American Designers
+- Make society more comfortable
+- some is about education
+- a lot sort of seems to fuel to idea of betterment and improving
+- their work is antithesis arts/crafts movment, simple, 
+- future thinking How do we reinvent
+- constantly a paradigm shift
+- fiberglass is cheap let's use it! What are environmental consequences?
+- 
+
+
+###How do we get clients to get in on this?
+
+
 
 
 
